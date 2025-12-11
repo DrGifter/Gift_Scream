@@ -1,5 +1,9 @@
 # Bình tĩnh, zui zẻ không quạo
 
+> Video Demo: [Xem tại đây](https://www.tiktok.com/@dr.gifter306/video/7521415184993258759)
+
+> Video hướng dẫn: [Xem tại đây](https://drive.google.com/file/d/1xXZ-IXxMqBVU8TrOuHTWQJ_35uZhr2XI/view?usp=sharing)
+
 ![image](https://github.com/user-attachments/assets/a71e501b-0e84-4050-8ee7-c3425307a37d)
 
 ---
