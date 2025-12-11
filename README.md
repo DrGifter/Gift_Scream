@@ -2,3 +2,9 @@
 
 ![image](https://github.com/user-attachments/assets/a71e501b-0e84-4050-8ee7-c3425307a37d)
 
+---
+>Nếu cảm thấy thích thú, bạn có thể ủng hộ mình thông qua tài khoản này, để mình có thêm động lực tạo ra nhiều thứ hay hơn
+
+<div align="center">
+  <img width="500" height="500" alt="stk" src="https://github.com/user-attachments/assets/3c1ef5a5-1457-4422-b764-360e87249c35" />
+</div>
